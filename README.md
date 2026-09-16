@@ -1,6 +1,6 @@
 # Mein erster Tag auf Github
 
-## About Me: Cansu ✨
+## About Me: Cansu 🫍
 ![My photo](https://static.wikitide.net/greatcharacterswiki/thumb/1/18/Taz_Devil.png/300px-Taz_Devil.png)
 
 Hei Everyone, great to meet you all, I’m **Cansu**. I bring a background from the Big Four Consulting alongside years of experience working across major European enterprises, tackling complex strategic and operational challenges. 
