@@ -5,7 +5,7 @@ Hei Everyone, great to meet you all, I’m **Cansu**. I bring a background from 
 
 I joined this bootcamp to bridge that experience into hands, on product execution, turning practical ideas into tangible digital products and laying the foundation to launch my own business. 
 
-Really excited to learn, build, and collaborate with all of you 
+Really excited to learn, build, and collaborate with all of you 🧗🏼‍♀️
 
 
 
