@@ -2,7 +2,9 @@
 <img src="https://static.wikitide.net/greatcharacterswiki/thumb/1/18/Taz_Devil.png/300px-Taz_Devil.png" align="right" width="200" alt="Description of image">
 
 Hei Everyone, great to meet you all, I’m **Cansu**. I bring a background from the Big Four Consulting alongside years of experience working across major European enterprises, tackling complex strategic and operational challenges. 
+
 I joined this bootcamp to bridge that experience into hands, on product execution, turning practical ideas into tangible digital products and laying the foundation to launch my own business. 
+
 Really excited to learn, build, and collaborate with all of you 
 
 
