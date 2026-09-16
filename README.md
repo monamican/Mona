@@ -12,7 +12,7 @@ Really excited to learn, build, and collaborate with all of you 👀
 ## Links 🥽
 
 [Cansu Linkedin](https://www.linkedin.com/in/cansubol/)
-
+[Cansu CV](https://www.linkedin.com/in/cansubol/)
 
 
 ### Quick Stats:  🫪
