@@ -13,7 +13,7 @@ Really excited to learn, build, and collaborate with all of you 👀
 
 [Cansu Linkedin](https://www.linkedin.com/in/cansubol/)
 
-[Cansu CV](https://github.com/monamican/Mona/blob/main/Cansu%20Bol%20CV%20260217%20bv1.pdf)
+[Cansu CV](https://github.com/monamican/Mona/blob/main/Cansu%20Bol%20CV%20260217.pdf)
 
 
 ### Quick Stats:  🫪
